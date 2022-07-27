@@ -1,3 +1,5 @@
+![image](https://static.wikia.nocookie.net/theremasteredroleplay/images/8/84/GlamrockFreddyIcon.png/revision/latest?cb=20220101195246)
+
 - 👋 Hi, I’m Glamrock Freddy
 - 👀 I’m interested in Glamrock Freddy
 - 🌱 I’m currently learning Glamrock Freddy
