@@ -20,3 +20,7 @@ You can click the Glamrock Freddy to take a look at your Glamrock Freddy.
 Yo Henry look what I figured out how to do!
 
 ![glamrockgiffy](https://media1.tenor.com/m/w5HvaSuNh2UAAAAC/freddy.gif)
+
+# How many attempts it took to make it so I'm actually committing and not some random kid
+
+3
